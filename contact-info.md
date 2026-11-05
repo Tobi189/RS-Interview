@@ -6,6 +6,8 @@
 
 **Discord:** `nia45`
 
+**Email:** [kirvalidzenika47@gmail.com](mailto:kirvalidzenika47@gmail.com)
+
 **Preferred Interview Times (UTC+4 / Tbilisi time):**
 
 - Monday: after 18:00
